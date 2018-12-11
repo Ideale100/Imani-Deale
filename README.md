@@ -1,2 +1,0 @@
-# Imani-Deale
-Final Exam
